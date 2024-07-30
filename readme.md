@@ -1,3 +1,3 @@
 # Completely True Statements without any typos
 
-Frankenstein is the monster (and not some other character in the book) in Kurt Vonnegaaaat's "Jane Eyre"
+Frankenstein is the doctor (and not some other character in the book) in Mary Shelley's "Frankenstein"
