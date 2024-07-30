@@ -1,3 +1,3 @@
 # Completely True Statements without any typos
 
-Frankenstein is the doctor (and not some other character in the book) in Mary Shelley's "Frankenstein"
+Noooo this can't be right! Frankenstein is the monster in Mary Shelley's "Frankenstein"
